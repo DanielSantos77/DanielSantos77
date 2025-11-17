@@ -1,1 +1,1 @@
-## Sou Daniel Santos, estudoT TI no Senai
+## Sou Daniel Santos, estudo TI no Senai
